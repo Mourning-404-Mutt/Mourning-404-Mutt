@@ -12,6 +12,8 @@ i freely block/hide for whatever reason i see fit /nm ; nothing personal (pleeee
 
 ^ with this, please tell me if im accidentally covering someone
 
+easily distracted
+
 strongly preferred not to have my ponies copied (not that they're worth it anyways wkdis /gen)
 
 i do ***not*** do fandoms. ive only had bad experiences with them and i just don't wanna do it man. but speaking of which,
