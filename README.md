@@ -12,7 +12,7 @@ i freely block/hide for whatever reason i see fit /nm ; nothing personal (pleeee
 
 ^ with this, please tell me if im accidentally covering someone
 
-easily distracted
+easily distracted and forgetful. tendency to repeat myself/overexplain out of both forgetfulness and fear of being taken the wrong way.
 
 strongly preferred not to have my ponies copied (not that they're worth it anyways wkdis /gen)
 
