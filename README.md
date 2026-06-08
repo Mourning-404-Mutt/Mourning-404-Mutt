@@ -1,3 +1,4 @@
+### ***,,That man makes my hopeless romantic heart miserable."***
 <img width="736" height="736" alt="Untitled37_20260605023409" src="https://github.com/user-attachments/assets/31ae8c1e-89d2-4f14-88eb-e91f8978cdbf" />
 
 Haii (tryna not make this seem passive aggressive akxksjs) (*there's more stuff on the carrd & ill update it as need be*)
