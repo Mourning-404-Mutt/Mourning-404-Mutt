@@ -9,7 +9,7 @@ i have my censoring on. i dont like profanity, really, or suggestive talk (no ju
 
 i pass no judgement (not my place) ; i just kindly ask for the same
 
-i freely block/hide for whatever reason i see fit /nm ; nothing personal (pleeeeeease utilize the block/hide button babes it's okay to protect your space i ***promise***)
+i freely block/hide for whatever reason i see fit /nm ; nothing personal (pleeeeeease utilize the block/hide button babes it's okay to protect your space i ***promise***) (I tend to mass hide during pearl hunting. sorry)
 
 ^ with this, please tell me if im accidentally covering someone
 
