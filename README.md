@@ -3,7 +3,7 @@
 
 Haii (tryna not make this seem passive aggressive akxksjs) (*there's more stuff on the carrd & ill update it as need be*)
 
-please call me: cota/kamora/bugs/ribs/critter/batty/para/vanilla ; adult ; mdni
+please call me: cota/kamora/bugs/ribs/critter/mourn/vanilla ; adult ; mdni
 
 i have my censoring on. i dont like profanity, really, or suggestive talk (no judgment)
 
